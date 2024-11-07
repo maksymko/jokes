@@ -21,3 +21,8 @@ thought: are those children really that slow that you need a special sign?
 Also, is the concern that they are so slow that they won't be able to run away
 from the car in time or is the concern that they won't understand that the car
 is coming? I guess, what I'm asking is: is this a mental or a physical thing?
+
+---------
+
+I've gone past the detailing shop the other day and saw Tesla Cybertruck
+getting waxed. I thought: "Huh, you *can* polish a turd after all!".
