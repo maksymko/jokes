@@ -26,3 +26,9 @@ is coming? I guess, what I'm asking is: is this a mental or a physical thing?
 
 I've gone past the detailing shop the other day and saw Tesla Cybertruck
 getting waxed. I thought: "Huh, you *can* polish a turd after all!".
+
+
+--------
+I hear that, thanks to AI, in two years nobody will be writing code anymore. I
+guess it's time to plan for a career change for me. I think I'm going to go for
+"flying car driver".
