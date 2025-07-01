@@ -27,8 +27,29 @@ is coming? I guess, what I'm asking is: is this a mental or a physical thing?
 I've gone past the detailing shop the other day and saw Tesla Cybertruck
 getting waxed. I thought: "Huh, you *can* polish a turd after all!".
 
-
 --------
+
 I hear that, thanks to AI, in two years nobody will be writing code anymore. I
 guess it's time to plan for a career change for me. I think I'm going to go for
 "flying car driver".
+
+-----------
+
+Goodreads keeps recommending me a new book on AI called "Genesis". It's by
+Henry A. Kissinger, Craig Mundie and Eric Schmidt. I'm wondering if any of them
+have actually read it.
+
+-----------
+
+When I was driving in Livermore the other day, I've noticed that I was crossing
+many streets named after different types of alcohol drinks: Sherry, Tokay,
+Riesling. The interesting part is that the street that I was driving on
+was called "College".  So, there is literally an intersection of College
+and alls sorts of booze in Livermore.
+
+-------------
+
+If you want to get a good recommendation for a restaurant or an interesting
+place to visit, you can't ask people who live there. You need to ask somebody
+who *visited*. People who live there never have a clue. Like, what is the best
+places to visit in Sunnyvale? I don't really know, Palo Alto, maybe?
